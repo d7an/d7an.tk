@@ -1,1 +1,1 @@
-www.d7an.tk
+d7an.tk
